@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @jordanwasthere
+- 👀 I’m interested in Roblox
+- 🌱 I’m currently learning nothing lmao
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me: X (Twitter) @jordanwasthere_
+- 😄 Pronouns: any
+- ⚡ Fun fact: im boring as hell
